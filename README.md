@@ -1,1 +1,1 @@
-Hi! It's kevin ISHIMWE.
+Hi! I'm kevin ISHIMWE.
